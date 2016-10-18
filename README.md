@@ -1,3 +1,6 @@
+
+oh dayum did on cwazy-bwanch
+
 this is the first commit
 
 this is the second commit
@@ -11,5 +14,3 @@ oh dis on snap-bwanch
 oh noes back to mastahah
 
 oh yis dis on weeces-peeces
-
-oh dayum did on cwazy-bwanch
