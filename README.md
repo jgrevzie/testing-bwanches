@@ -11,3 +11,5 @@ oh dis on snap-bwanch
 oh noes back to mastahah
 
 oh yis dis on weeces-peeces
+
+oh dayum did on cwazy-bwanch
